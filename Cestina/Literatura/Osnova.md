@@ -1,6 +1,6 @@
-# Jiří Žáček - Okurková sezóna
+# Autor XXX - Dílo XXX
 
-## Autor, název
+## Autor, název, další jeho díla
 
 ## Druh, žánr
 
